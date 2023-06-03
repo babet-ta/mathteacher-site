@@ -45,6 +45,6 @@ Aleksandra Mosyagina<br>
 Daniya Shagieva <br>
 [@ShaDaniya](https://github.com/ShaDaniya)
 
-lisa_ywl<br>
-[@yourworthlesslife](https://github.com/yourworthlesslife)
+Elizaveta Vopilova<br>
+[@babet-ta](https://github.com/babet-ta)
 
